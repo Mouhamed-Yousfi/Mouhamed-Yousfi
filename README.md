@@ -1,4 +1,4 @@
-# Hi, I'm Muhammad Yousefi (but I go by YoMo)
+# Hi, I'm Mouhamad Yousefi (but I go by YoMo)
 
 I am a university student focusing on advanced mathematics. 
 
